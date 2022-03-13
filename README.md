@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
-MAHEDI IS COOL
+WE ARE ALL IS COOL
 
 <!---
 Unibots7237/Unibots7237 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
